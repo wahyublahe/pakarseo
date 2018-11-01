@@ -1,2 +1,2 @@
 # pakarseo
-Wahyu Blahe Digitalpreneur Guru SEO Blogger Medan
+Wahyu Blahe <a href="https://wahyublahe.id/seo">Pakar SEO</a>
